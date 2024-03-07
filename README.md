@@ -5,5 +5,5 @@
 
 </div>
   
-![Rei-Ayanami-Rei](https://github.com/Nopvan/picture/blob/main/rei_kedip.gif|width=10)
+![Rei-Ayanami-Rei](https://github.com/Nopvan/picture/blob/main/rei_kedip.gif)
 
