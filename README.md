@@ -5,5 +5,5 @@
 
 </div>
   
-![Rei-Ayanami-Rei](https://gifdb.com/gif/rei-ayanami-blinking-her-eyes-b4ouf0v169kn5r65.html?embed=true)
+![Rei-Ayanami-Rei](https://github.com/Nopvan/picture/blob/main/rei_kedip.gif)
 
